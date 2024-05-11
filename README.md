@@ -1,1 +1,1 @@
-Please refer to finalproject.pdf for more information on the files
+Please refer to finalproject.pdf for more information on the posted files
